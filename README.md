@@ -16,8 +16,8 @@ When I'm not coding or crunching numbers, you'll find me volunteering at the Red
 
 📍 **Location:** Sydney, NSW, Australia  
 📧 **Email:** sunhuabiao1@gmail.com  
-📱 **Phone:** (61) 493-895-097
-**linkedin:** 
+📱 **Phone:** (61) 493-895-097 <br>
+💼 **linkedin:** www.linkedin.com/in/huabiao-sun-92a925304
 
 ---
 
